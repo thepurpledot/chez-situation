@@ -1,5 +1,6 @@
 # chez-situation
 
+ТГК Резерв: https://t.me/+O3MIblJMTls2Mjdk
 Текущий юзернейм в телеграме: @SmilingWinner
 Дискорд: thepurpledot
 
